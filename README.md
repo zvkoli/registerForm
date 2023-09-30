@@ -20,4 +20,8 @@
 
 **_Preview_**
 
+![00](https://github.com/immohammadrezatavakkoli/coffeeshop/assets/100797809/8d16c31b-2e9c-4a54-aa54-857c4daf60a3)
+![01](https://github.com/immohammadrezatavakkoli/coffeeshop/assets/100797809/2ec1de0e-ce53-4d74-8a22-d327d5f6596e)
+
+
 ---
